@@ -2,3 +2,4 @@
 - 👀 I’m interested in developing simple application, just for fun :)
 - 🌱 I’m currently learning everything, basically lol. No really, i don't know anything about coding :C
 - 📫 How to reach me... e-mail: gabrivento77@gmail.com  Instagram: @gabrielevento
+- 
